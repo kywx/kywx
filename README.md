@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kywx 
-- 👀 I’m interested in games.
-- 🌱 I’m currently learning
-- 💞️ I’m looking to 
+- 👀 I’m interested in games and manga.
+- 🌱 I’m currently learning.
+- 💞️ I’m looking to look.
 - 📫 How to reach me: N/A
 
 <!---
